@@ -1,4 +1,4 @@
-<img width="200" height="190" alt="ezgif-3cccae9c47bdd92e" src="https://github.com/user-attachments/assets/4fbb6eb1-ea1b-4b22-9536-13db13e420aa" />
+<img width="200" height="200" alt="ezgif-3feed9d72dc597bf" src="https://github.com/user-attachments/assets/6dbd9f39-f2a9-41bb-86b8-54d29daed18f" />
 
 marios madness hyperfix🥀🥀
 
@@ -6,5 +6,4 @@ marios madness hyperfix🥀🥀
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
                                                                                                                                                                                       
-<img width="200" height="200" alt="ezgif-3feed9d72dc597bf" src="https://github.com/user-attachments/assets/6dbd9f39-f2a9-41bb-86b8-54d29daed18f" />
 
