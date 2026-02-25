@@ -1,4 +1,4 @@
-<img width="200" height="200" alt="ezgif-3feed9d72dc597bf" src="https://github.com/user-attachments/assets/d575806c-2e6e-4b7b-b550-250fdcb68fc0" />
+<img width="200" height="190" alt="ezgif-3cccae9c47bdd92e" src="https://github.com/user-attachments/assets/fe5c38c1-b0b5-458c-8234-443bb3da1bb4" />
 
 marios madness hyperfix🥀🥀
 
