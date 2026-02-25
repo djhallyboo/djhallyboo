@@ -1,4 +1,4 @@
-<img width="200" height="190" alt="ezgif-3cccae9c47bdd92e" src="https://github.com/user-attachments/assets/fe5c38c1-b0b5-458c-8234-443bb3da1bb4" />
+![wario-world-nes](https://github.com/user-attachments/assets/4016bb9f-7ec4-4df5-83c9-8daaf32e3369)
 
 marios madness hyperfix🥀🥀
 
