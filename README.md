@@ -1,5 +1,3 @@
-![wario-world-nes](https://github.com/user-attachments/assets/4016bb9f-7ec4-4df5-83c9-8daaf32e3369)
-
 marios madness hyperfix🥀🥀
 
 [ata](https://devilmario.atabook.org/)　[rentry](https://rentry.co/coryspazkid)　　
