@@ -1,5 +1,4 @@
-<p align="center"><sup><a href="https://x.com/CrazyMachineGu1/status/1768981079535538683?s=20
-">!</a>
+
 <p align="center"><img src="https://files.catbox.moe/z6jqiu.jpg">
 <p align="center"><sup> <a href="https://rentry.co/coryspazkid/">rentry</a> & <a href="https://devilmario.atabook.org/">ata</sup> 
 <p align="center"><sub>  marios madness hyperfix🥀🥀 </sub>
