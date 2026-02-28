@@ -1,5 +1,5 @@
 
-<p align="center"><img src="https://files.catbox.moe/z6jqiu.jpg">
+<p align="center"><img src="https://github.com/user-attachments/assets/5e7dced4-2c96-4727-931f-d0f56caf172b">
 <p align="center"><sup> <a href="https://rentry.co/coryspazkid/">rentry</a> & <a href="https://devilmario.atabook.org/">ata</sup> 
 <p align="center"><sub>  marios madness hyperfix🥀🥀 </sub>
 
