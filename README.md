@@ -2,7 +2,7 @@
 
 
 ![](https://files.catbox.moe/3vi3i9.png)
-<p align="center"><img src="https://files.catbox.moe/5tgz7i.gif">
+<p align="center"><img src="https://files.catbox.moe/s931gn.gif">
 <p align="center"><sup> <a href="https://rentry.co/coryspazkid/">rentry</a> & <a href="https://devilmario.atabook.org/">ata</sup> 
 <p align="center"><sub>  marios madness hyperfix🥀🥀 </sub>
 
