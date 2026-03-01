@@ -7,7 +7,7 @@
 
 <p align="center"><a 
 
-![](https://files.catbox.moe/csvu8u.png)
+![](https://files.catbox.moe/c8qmjo.png)
 
 <p align="center"><a 
 
