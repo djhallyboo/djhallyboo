@@ -7,11 +7,8 @@
 <p align="center"><sub>  marios madness hyperfix🥀🥀 </sub>
 
 <p align="center"><a 
-
 <p align="center"><sub>  _________________________ </sub>
-
 <p align="center"><a 
-
 
 ![](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=ffffff&bar_color_cover=false)                  
 
