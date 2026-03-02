@@ -8,7 +8,7 @@
 
 <p align="center"><a 
 
-![](https://files.catbox.moe/c8qmjo.png)
+<p align="center"><sub>  _________________________ </sub>
 
 <p align="center"><a 
 
