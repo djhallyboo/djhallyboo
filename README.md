@@ -4,8 +4,6 @@
 <p align="center"><sup> <a href="https://rentry.co/coryspazkid/">rentry</a>ᅠ𓏴ᅠ<a href="https://devilmario.atabook.org/">ata</sup> 
 <p align="center"><a 
 
-<p align="center"><sub>  mario's madness hyperfix🥀🥀 </sub>
-
 <p align="center"><a 
 
 <p align="center"><a 
